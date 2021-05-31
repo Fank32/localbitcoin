@@ -17,7 +17,7 @@
 
 要是跑单狗孤儿太多的话 ！ 以后我就不会分享这样的项目出来了
 
-没什么难，认真的看完链接里的教程   ，@SuxingheThe 不懂问我 
+没什么难，认真的看完链接里的教程   ，不懂问我 
 
 中文翻译：https://mega.nz/file/uNNnwQ4Q#bUbTD8MsT-fu-LaVWZ-U_Zs6UIexWVqi0ionq7LmhBQ
 
