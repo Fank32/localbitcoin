@@ -1,3 +1,5 @@
+文档：localbitcion.note
+链接：http://note.youdao.com/noteshare?id=ddff3393b9397525f3fc82e6e75a7d16&sub=F9587D93820E4C01BC453A68F749ECB7
 操作视频为我测试的时候录制   
 想合作的看完教程（下面的链接）找我拿代码。
  
